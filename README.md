@@ -20,3 +20,6 @@ i like drawing but artblock got me sooo . i love playing games, its obvious righ
 -**𝓪𝓶 𝓲 𝓮𝓿𝓮𝓻 𝓰𝓸𝓸𝓭 𝓮𝓷𝓸𝓾𝓰𝓱**-
 
 ƎN◖
+
+anyway go my old description ahaha
+doyou know the diffrence between me and erlking heathcliff? its becaus if erlking heath ride horse, and i ride heathcl
