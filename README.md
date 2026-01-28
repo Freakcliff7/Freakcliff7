@@ -1,6 +1,6 @@
 𝚆𝚎𝚕𝚌𝚘𝚖𝚎 ! ! hi ! let me introduce myself .
 
-# *✗ you can call me . . .*
+# *✗ Names ? . . i guess*
 you can call me how2social / creatvr3 [creature] / stockit . or also my aliases ! wemmbu / derapchu / heathcliff / gregor / ellernate . but i prefer you to call me how2social or h2s/social
 
 # *✗ ! kins .*
