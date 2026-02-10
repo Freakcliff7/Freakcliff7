@@ -5,7 +5,7 @@
 
  # ⊹ you can call me . . ! Stockit ! uhm yeah because it ' s my oc anyway , , hehe .
 
- # ⊹ err i make this becaus i like making this ˙𐃷˙
+ # ⊹ err i make this becaus i like making stuffs teeh ˙𐃷˙
 
  # ⊹ uhmm ! also this account is kinda look messy and unfinished . . im js lazy to finish it fully (◞‸ ◟)💧
 
