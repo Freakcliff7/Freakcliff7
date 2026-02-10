@@ -1,23 +1,30 @@
-𝚆𝚎𝚕𝚌𝚘𝚖𝚎 ! ! hi ! let me introduce myself .
+　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟
 
-# *✗ Names ? . . i guess*
-you can call me how2social / creatvr3 [creature] / stockit . or also my aliases ! wemmbu / derapchu / heathcliff / gregor / ellernate . but i prefer you to call me how2social or h2s/social
+- uhmm, hhi there !! - 
 
-# *✗ ! kins .*
+ i ' ll introduce myself . .
 
-skatingrease , azurewrath , rui kamishiro , kanade yoisaki , skateboard . 
+ # ⊹ you can call me . . ! Stockit ! uhm yeah because it ' s my oc anyway , , hehe .
 
-# *✗ about me .*
-iiiim a kinda of "shy" person , i often to not socialize much but yeah sometimes i can be talking/playing for SO long , if youre oomf and is noticing i talk too much , please tell me 2 stop or at least remind me ! . also uhm , i highkey can slowresp for like times , cuz sometimes i got busy / multitaskting like doing homework or chores uhmm yeah so my bad (｡•́ ̫ •̀｡) aand also , i fear that im a sensitive person , but so far i don ' t think so because??? yes . also i apprectiate for you interacting w/ me !
+ # ⊹ err i make this becaus i like making this ˙𐃷˙
 
-# *✗ fandoms ! [so far]*
-. OFF , forsaken , pressure , the robloxia until dawn , bad things , let him go , drawnout , die of death , raise a floppa , phighting , evade , jim ' s computer , get a drink at 3 am , get a snack at 4 am , regretevator , project sekai , limbus comapny , wonderend0 , haikyuu , silver thread , battle for dream island : elsewhere , doki doki literature club , vocaloids / utauloids / fanloids / synthizer or other voices softwares , bakwan : fight back , searching for a world that doesnn ' t exist , minecraft arg but the protagonist is a speedrunner , skatingrease , ihasafaceLULZ , seildirectory , rochas313 , itzskeet_playz , deivydoestutorials33 , recall a hollow heart , genshin impact , lifesteal smp , unstable smp , school smp .
+ # ⊹ uhmm ! also this account is kinda look messy and unfinished . . im js lazy to finish it fully (◞‸ ◟)💧
 
-# *✗ facts abo𝓾𝓽 𝓶𝓮 [ i guess ? i think its a normal stuffs . ]*
-i like drawing but artblock got me sooo . i love playing games , its obvious right . i love nightcore / speedcore / jumpstyle songs or remixes . a𝐧𝐝 my mom say that im crative , is that true
+ # ⊹ uhhhuhhh thinks about me , , 
+ ↑ i love, like- LOVE musics/songs, uhmm idontknow why i said that uh anyway type of music i like is a happy hardcore / nightcore / jumpstyle remixes , i mena, i also like uhh j - pop or <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/94826bb6-e569-413c-a12e-0d3b629e4efe" />
+ its just so peak teeh !
 
-kay bye hav a nice day .
-ƎN◖
+ # ⊹ FANDOMS . uhmm [copy pastes]
+ ↑ OFF , forsaken , pressure , the robloxia until dawn , bad things , let him go , drawnout , die of death , raise a floppa , phighting , evade , jim ' s computer , get a drink at 3 am , get a snack at 4 am , regretevator , project sekai , limbus comapny , wonderend0 , haikyuu , silver thread , the freak circus , just kiss him already! , battle for dream island : elsewhere , doki doki literature club , vocaloids / utauloids / fanloids / synthizer or other voices softwares , bakwan : fight back , searching for a world that doesnn ' t exist , minecraft arg but the protagonist is a speedrunner , skatingrease , ihasafaceLULZ , seildirectory , rochas313 , itzskeet_playz , deivydoestutorials33 , recall a hollow heart , genshin impact , lifesteal smp , unstable smp , school smp .
 
-anyway go my old description ahaha
-doyou know the diffrence between me and erlking heathcliff? its becaus if erlking heath ride horse, and i ride heathcl
+ # ⊹ uhmm! things i do is uh . .
+ ↑ drawing , playing games [ its so obvious right right ok. .] , and uhm , idont kno doomscrolling / listening to something ? ? 
+
+ # ⊹ anyway i think that is for now , thanks 4 reasing ! !（˶ˆᗜˆ˵）
+
+ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/da2dcab2-2705-458b-ac9d-0464ad7e4f50" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ca1b7d23-a48a-4be5-82f6-8c267b3a0862" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1cd218c3-3f1b-4ec9-895b-381b3f8686fc" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1061246b-2d0b-4cb8-8eec-a4fc0a53af36" />
+
+　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟
+
+
+　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟
