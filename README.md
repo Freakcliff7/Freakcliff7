@@ -3,7 +3,7 @@
 
  i ' ll introduce myself . .
 
- # ⊹ you can call me . . ! Stockit ! uhm yeah because it ' s my oc anyway , , hehe . <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3b65e8d5-f6bd-4e55-952b-1e6178608f5c" />
+ # ⊹ you can call me . . ! Stockit ! uhm yeah because it ' s my oc anyway , , or also you can call me by my github user teehe! . <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3b65e8d5-f6bd-4e55-952b-1e6178608f5c" />
 
 
  # ⊹ err i make this becaus i like making stuffs teeh ˙𐃷˙
