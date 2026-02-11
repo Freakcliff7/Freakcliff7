@@ -3,7 +3,8 @@
 
  i ' ll introduce myself . .
 
- # ⊹ you can call me . . ! Stockit ! uhm yeah because it ' s my oc anyway , , hehe .
+ # ⊹ you can call me . . ! Stockit ! uhm yeah because it ' s my oc anyway , , hehe . <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3b65e8d5-f6bd-4e55-952b-1e6178608f5c" />
+
 
  # ⊹ err i make this becaus i like making stuffs teeh ˙𐃷˙
 
@@ -17,7 +18,8 @@
  ↑ OFF , forsaken , pressure , the robloxia until dawn , bad things , let him go , drawnout , die of death , raise a floppa , phighting , evade , jim ' s computer , get a drink at 3 am , get a snack at 4 am , regretevator , project sekai , limbus comapny , wonderend0 , haikyuu , silver thread , the freak circus , just kiss him already! , battle for dream island : elsewhere , doki doki literature club , vocaloids / utauloids / fanloids / synthizer or other voices softwares , bakwan : fight back , searching for a world that doesnn ' t exist , minecraft arg but the protagonist is a speedrunner , skatingrease , ihasafaceLULZ , seildirectory , rochas313 , itzskeet_playz , deivydoestutorials33 , recall a hollow heart , genshin impact , lifesteal smp , unstable smp , school smp .
 
  # ⊹ uhmm! things i do is uh . .
- ↑ drawing , playing games [ its so obvious right right ok. .] , and uhm , idont kno doomscrolling / listening to something ? ? 
+ ↑ drawing , playing games [ its so obvious right right ok. .] , and uhm , idont kno doomscrolling / listening to something ? ? <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ebc412d9-9f6e-4f37-8697-8151fbc645b2" />
+
 
  # ⊹ anyway i think that is for now , thanks 4 reading ! !（˶ˆᗜˆ˵）
 
