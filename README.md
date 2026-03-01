@@ -11,11 +11,11 @@
  # ⊹ uhmm ! also this account is kinda look messy and unfinished . . im js lazy to finish it fully (◞‸ ◟)💧
 
  # ⊹ uhhhuhhh thinks about me , , 
- ↑ i love, like- LOVE musics/songs, uhmm idontknow why i said that uh anyway type of music i like is a happy hardcore / nightcore / jumpstyle remixes , i mena, i also like uhh j - pop or <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/94826bb6-e569-413c-a12e-0d3b629e4efe" />
+ ↑ i love, like- LOVE musics/songs, uhmm idontknow why i said that uh anyway type of music i like is a happy hardcore / nightcore / jumpstyle remixes , breakcores /breakcore remixes , i mean, i also like uhh j - pop or <img width="50" height="36" alt="image" src="https://github.com/user-attachments/assets/94826bb6-e569-413c-a12e-0d3b629e4efe" />
  its just so peak teeh !
 
  # ⊹ FANDOMS . uhmm [copy pastes]
- ↑ OFF , forsaken , pressure , the robloxia until dawn , bad things , let him go , drawnout , die of death , raise a floppa , phighting , evade , jim ' s computer , get a drink at 3 am , get a snack at 4 am , regretevator , project sekai , limbus comapny , wonderend0 , haikyuu , silver thread , the freak circus , just kiss him already! , battle for dream island : elsewhere , doki doki literature club , vocaloids / utauloids / fanloids / synthizer or other voices softwares , bakwan : fight back , searching for a world that doesnn ' t exist , minecraft arg but the protagonist is a speedrunner , skatingrease , ihasafaceLULZ , seildirectory , rochas313 , itzskeet_playz , deivydoestutorials33 , recall a hollow heart , genshin impact , lifesteal smp , unstable smp , school smp .
+ ↑ OFF , forsaken , pressure , the robloxia until dawn , bad things , let him go , drawnout , die of death , raise a floppa , phighting , evade , jim ' s computer , get a drink at 3 am , get a snack at 4 am , regretevator , project sekai , limbus company , wonderend0 , haikyuu , silver thread , the freak circus , just kiss him already! , battle for dream island : elsewhere , doki doki literature club , vocaloids / utauloids / fanloids / synthizer or other voices softwares , bakwan : fight back , searching for a world that doesnn ' t exist , minecraft arg but the protagonist is a speedrunner , skatingrease , ihasafaceLULZ , seildirectory , rochas313 , itzskeet_playz , deivydoestutorials33 , recall a hollow heart , genshin impact , lifesteal smp , unstable smp , school smp .
 
  # ⊹ uhmm! things i do is uh . .
  ↑ drawing , playing games [ its so obvious right right ok. .] , and uhm , idont kno doomscrolling / listening to something ? ? <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ebc412d9-9f6e-4f37-8697-8151fbc645b2" />
