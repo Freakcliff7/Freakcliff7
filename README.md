@@ -3,7 +3,7 @@
 
  i ' ll introduce myself . .
 
- # ⊹ you can call me . . Heathcliff/Wemmbu cause err somethingsomething free will ? or also you can call me by my github user! idm . <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/30b82ec2-e405-4cc5-83df-a6326b510474" />
+ # ⊹ you can call me . . Heathcliff/Wemmbu cause err somethingsomething free will ? or also you can call me by my github user! idm . <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/30b82ec2-e405-4cc5-83df-a6326b510474" />
 
 
  # ⊹ err i make this becaus i like making stuffs lol ˙𐃷˙
@@ -17,7 +17,7 @@
  ↑ OFF , forsaken , pressure , the robloxia until dawn , bad things , let him go , drawnout , die of death , raise a floppa , phighting , evade , jim ' s computer , get a drink at 3 am , get a snack at 4 am , regretevator , project sekai , limbus company , wonderend0 , haikyuu , silver thread , the freak circus , just kiss him already! , battle for dream island : elsewhere , doki doki literature club , vocaloids / utauloids / fanloids / synthizer or other voices softwares , bakwan : fight back , searching for a world that doesnn ' t exist , minecraft arg but the protagonist is a speedrunner , skatingrease , ihasafaceLULZ , seildirectory , rochas313 , itzskeet_playz , deivydoestutorials33 , recall a hollow heart , genshin impact , lifesteal smp , unstable smp , school smp , taming . io , arras . io .
 
  # ⊹ uhmm! things i do is uh . .
- ↑ drawing , playing games [ its so obvious right right ok. .] , and uhm , idont kno doomscrolling / listening to something ? ? <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/597b81fc-713c-4c9b-bfb1-2803e41def66" />
+ ↑ drawing , playing games [ its so obvious right right ok. .] , and uhm , idont kno doomscrolling / listening to something ? ? <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/597b81fc-713c-4c9b-bfb1-2803e41def66" />
 
  # ⊹ anyway i think that is for now , thanks 4 reading ! !（˶ˆᗜˆ˵）
 
