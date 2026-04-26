@@ -23,6 +23,18 @@
  # ⊹ uhmm! things i do is uh . .
  ↑ drawing , playing games [ its so obvious right right ok. .] , and uhm , idont kno doomscrolling / listening to something ? ? <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/597b81fc-713c-4c9b-bfb1-2803e41def66" />
 
+<img width="970" height="605" alt="image" src="https://github.com/user-attachments/assets/fb20858a-314a-4486-b50a-04903e562e9e" />
+
+ # ⊹ boundaries ? ?
+ - do not copy my skins cause um , , i don ' t like that . but taking inspo is alright
+ - feel free to c/h ! unless im in a group , i reccomend not to ^_^
+ - ihave nothing else okay
+
+ # ⊹ fav color
+ ↑ im running out of idea lol anyway it was ZAMN ITS TEAL [get the ref] , green :\ , yellow , purple/violet / blue
+
+ # ⊹ ummmm reaad the thing below
+
  # ⊹ anyway i think that is for now , thanks 4 reading ! !（˶ˆᗜˆ˵）
 
  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/da2dcab2-2705-458b-ac9d-0464ad7e4f50" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ca1b7d23-a48a-4be5-82f6-8c267b3a0862" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1cd218c3-3f1b-4ec9-895b-381b3f8686fc" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1061246b-2d0b-4cb8-8eec-a4fc0a53af36" />
