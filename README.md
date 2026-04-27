@@ -25,10 +25,10 @@
 
 <img width="970" height="605" alt="image" src="https://github.com/user-attachments/assets/fb20858a-314a-4486-b50a-04903e562e9e" />
 
- # ⊹ boundaries ? ?
- - do not copy my skins cause um , , i don ' t like that . but taking inspo is alright
- - feel free to c/h ! unless im in a group , i reccomend not to ^_^
- - ihave nothing else okay
+ # ⊹ do not copy my skins cause um , , i don ' t like that . but taking inspo is alright
+
+
+ # ⊹ feel free to c/h ! unless im in a group , i reccomend not to ^_^
 
  # ⊹ fav color
  ↑ im running out of idea lol anyway it was ZAMN ITS TEAL [get the ref] , green :\ , yellow , purple/violet / blue
