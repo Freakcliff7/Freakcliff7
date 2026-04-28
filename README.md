@@ -7,7 +7,7 @@
 
  i ' ll introduce myself . .
 
- # ⊹ you can call me . . Heathcliff/Wemmbu cause err somethingsomething free will ? or also you can call me by my github user! idm . <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/30b82ec2-e405-4cc5-83df-a6326b510474" />
+ # ⊹ you can call me . . Heathcliff/Wemmbu cause err somethingsomething free will ? or also you can call me by my github user! idm . <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/fe1142ea-666f-4113-9f48-947b254679bd" />
 
 
  # ⊹ err i make this becaus i like making stuffs lol ˙𐃷˙
