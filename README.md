@@ -1,3 +1,6 @@
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦
+# YOU ! ! ! READ MY REP ! ! <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/51650250-9f56-44ab-a1a1-22893d20a4c7" />
+<img width="40" height="40" alt="Image" src="https://github.com/user-attachments/assets/9bca034f-0034-4539-977a-e943620755fa" />
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/87ae4363-f12a-4692-b2ed-51a3e92ea4e4" /><img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/8d796f42-c8e5-4545-889d-7f63f5299c8e" /><img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/744740a7-bb04-4aab-938b-9416b84859a9" />
 
 
