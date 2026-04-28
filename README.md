@@ -37,7 +37,7 @@
 
  # ⊹ anyway i think that is for now , thanks 4 reading ! !（˶ˆᗜˆ˵）
 
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/00ff0bf9-15cd-46cf-abe6-94b8bb5f4ad4" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/232578f0-60ee-4ec8-88b2-ebe6981833b9" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/359f7a52-7e75-4d2b-847f-949a6086e608" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5bc6fb44-9764-42b1-975b-10f7bde20d89" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/00ff0bf9-15cd-46cf-abe6-94b8bb5f4ad4" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/232578f0-60ee-4ec8-88b2-ebe6981833b9" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/359f7a52-7e75-4d2b-847f-949a6086e608" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5bc6fb44-9764-42b1-975b-10f7bde20d89" /><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/38abe9f3-c957-44f4-8031-b461fdb029b9" />
 
 
 　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　﹢　˙   ̟　◌　 ̟　♪　˖　　˙　ᶻ　　 ̟　　
