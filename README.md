@@ -29,7 +29,7 @@
 
 <img width="970" height="605" alt="image" src="https://github.com/user-attachments/assets/fb20858a-314a-4486-b50a-04903e562e9e" />
 
-# <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" /> ⊹ do not copy my skins cause um , , i don ' t like that . but taking inspo is alright<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
+# <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" /> ⊹ do not copy my skins cause um , , i don ' t like that [gifted is an exception] . but taking inspo is alright<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
 
 
 # <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ feel free to c/h ! unless im in a group , i reccomend not to ^_^<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
