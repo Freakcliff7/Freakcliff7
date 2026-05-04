@@ -38,7 +38,9 @@
 
  ↑ im running out of idea lol anyway it was ZAMN ITS TEAL [get the ref] , green :\ , yellow , purple/violet / blue
  
-# <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ ummmm reaad the thing below<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
+# <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ kins / characters i relate to <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
+
+↑ Rui kamishiro , Honami mochizuki , Kanade yoisaki , Skateboard , Azure , Hong lu
 
 # <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ anyway i think that is for now , thanks 4 reading ! !（˶ˆᗜˆ˵）<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
 
