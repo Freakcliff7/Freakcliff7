@@ -36,7 +36,7 @@
 
 # <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" /> ⊹ fav color<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
 
- ↑ im running out of idea lol anyway it was ZAMN ITS TEAL [get the ref] , green :\ , yellow , purple/violet / blue
+ ↑ im running out of idea lol anyway it was green :\ , yellow , 𝔀𝓸𝓪𝓱.. 𝔀𝓱𝓪𝓽 𝓪 𝓫𝓮𝓪𝓾𝓽𝓲𝓯𝓾𝓵 𝓱𝓾𝓮 𝓸𝓯 𝓽𝓮𝓪𝓵.. , purple / violet , blue 
  
 # <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ kins / characters i relate to <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
 
