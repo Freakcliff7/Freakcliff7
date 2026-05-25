@@ -15,7 +15,7 @@
 
 # <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ err i make this becaus i like making stuffs lol ˙𐃷˙<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
 
-# <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ uhmm ! also this account is kinda look messy and unfinished . . im js lazy to finish it fully (◞‸ ◟)💧<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
+# <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ uhmm ! also this account is kinda look messy and unfinished . . im js lazy to finish / update it lol <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
 
 # <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b4cb5dcd-5577-43bb-8749-cec3e744f07c" />  ⊹ uhhhuhhh thinks about me , ,<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/451e3bad-e399-45a7-980e-191188a54037" />
  
