@@ -21,4 +21,4 @@ im bad at socializing ok excuse me
 if i randomly leave the game its either my parent told me smt or my wifi is just ass
 or im playing another game 💔 i promise i'll say goodbye when i can
 
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/588e8cc3-924e-4562-9e02-5ee51c2fc3eb" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/68151028-f1e1-49e6-b6df-24d4191c438d" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/68151028-f1e1-49e6-b6df-24d4191c438d" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/588e8cc3-924e-4562-9e02-5ee51c2fc3eb" />
